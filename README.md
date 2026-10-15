@@ -1,2 +1,1 @@
-# Coba_coba
-Coba coba bikin LIGHTING sendiri
+bentar yakkk. kalo kalian lihat ini berarti website masih dalam update. tunggu sebentar aja kok. gak lama
